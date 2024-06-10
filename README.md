@@ -1,2 +1,5 @@
 # GitForStudy
-สำหรับการเรียนรู้
+
+#กำลังเรียนรู้การใช้งาน github
+
+#fkjfklak fajklfjh;kla aklhflhaf
